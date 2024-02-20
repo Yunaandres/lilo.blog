@@ -32,15 +32,17 @@ An der Sandrainstrasse 3 in Bern bringt das Lichtspiel-Team Filme aus der Vergan
 
 Als Institution ist die Kinemathek Mitglied der Museen Bern und kooperiert mit anderen Museen auf verschiedenen Ebenen. Dennoch prägt das Lichtspiel einen eigenen "Museums-Ansatz" – verspielt, neugierig, begehbar, sichtbar, riechbar und hörbar. Die Kinemathek Lichtspiel bleibt somit nicht nur ein Ort der Vergangenheit, sondern auch ein lebendiger Raum für die Zukunft der Filmkultur.
 
-> **Zur Institution:**
->
-> Das Lichtspiel wurde 2012 gegründet in Bern und ist seit 10 Jahren am aktuellen Standort in der Sandrainstrasse 3 in Bern. Seit der Eröffnung des Lichtspiels werden jeden Sonntagabend zwei Filmrollen mit kurzen Filmen aus dem Archiv zusammengestellt und ermöglichen einen Einblick in die Filmsammlung der Kinemathek. Im Weiteren finden thematische Filmzyklen und Retrospektiven statt. 
->
-> **Zur interviewten Person:**
->
-> Raff Fluri arbeitet seit 2020 in der Kinemathek Lichtspiel, als technischer Leiter für Veranstaltungen und Ausstellungen
->
->
+{{<box>}}
+
+**Zur Institution:**
+
+Das Lichtspiel wurde 2012 gegründet in Bern und ist seit 10 Jahren am aktuellen Standort in der Sandrainstrasse 3 in Bern. Seit der Eröffnung des Lichtspiels werden jeden Sonntagabend zwei Filmrollen mit kurzen Filmen aus dem Archiv zusammengestellt und ermöglichen einen Einblick in die Filmsammlung der Kinemathek. Im Weiteren finden thematische Filmzyklen und Retrospektiven statt. 
+
+**Zur interviewten Person:**
+
+Raff Fluri arbeitet seit 2020 in der Kinemathek Lichtspiel, als technischer Leiter für Veranstaltungen und Ausstellungen
+
+{{</box>}}
 
 ![]()
 
