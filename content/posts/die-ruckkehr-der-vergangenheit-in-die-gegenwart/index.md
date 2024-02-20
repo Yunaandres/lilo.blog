@@ -4,7 +4,7 @@ date = "2024-02-20"
 draft = false
 pinned = false
 tags = []
-image = ""
+image = "c36d8e71-5c63-4aa9-a16b-bbabef786acd.jpeg"
 description = ""
 footnotes = ""
 +++
