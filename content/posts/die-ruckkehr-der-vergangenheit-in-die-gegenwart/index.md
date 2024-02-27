@@ -1,6 +1,6 @@
 +++
 title = "Die Rückkehr der Vergangenheit in die Gegenwart "
-date = "2024-02-20"
+date = "2024-02-26"
 draft = false
 pinned = false
 tags = []
@@ -16,9 +16,7 @@ Während sich die Welt um uns verändert und die Technologie voranschreitet, ble
 
 <!--StartFragment-->
 
-`Yuna Andres und Sofiia Bublyk`
-
-
+Yuna Andres und Sofiia Bublyk
 
 <!--EndFragment-->
 
