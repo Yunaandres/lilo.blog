@@ -70,7 +70,7 @@ Als zusätzliche Veranstaltungen bietet die Kinemathek Lichtspiel verschiedene t
 
  Zur Institution:
 
-Das Lichtspiel wurde 2012  in Bern gegründet und ist seit 10 Jahren am aktuellen Standort in der Sandrainstrasse 3 in Bern. Seit der Eröffnung des Lichtspiels werden jeden Sonntagabend zwei Filmrollen mit kurzen Filmen aus dem Archiv zusammengestellt, die einen Einblick in die Filmsammlung der Kinemathek geben. Im Weiteren finden thematische Filmzyklen und Retrospektiven statt. 
+Das Lichtspiel wurde 2012 in Bern gegründet und ist seit 10 Jahren am aktuellen Standort in der Sandrainstrasse 3 in Bern. Seit der Eröffnung des Lichtspiels werden jeden Sonntagabend zwei Filmrollen mit kurzen Filmen aus dem Archiv zusammengestellt, die einen Einblick in die Filmsammlung der Kinemathek geben. Im Weiteren finden thematische Filmzyklen und Retrospektiven statt. 
 
 Zur interviewten Person:
 
