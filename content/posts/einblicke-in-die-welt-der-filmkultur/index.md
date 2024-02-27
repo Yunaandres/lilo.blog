@@ -17,7 +17,7 @@ In einer Zeit des digitalen Wandels und der kulturellen Transformation ist das L
 
 <!--EndFragment-->
 
-![Teil des Lichtspiel-Teams Raff Fluri vor der Sammlung der Institution (Fotografie von  Yuna Andres und  Sofiia Bublyk, Stand: 20.12.2023)](da6aaebf-4e3f-4d9f-ac2c-c974f5ece54c.jpeg)
+![Mitglied des Lichtspiel-Teams Raff Fluri (verfügbar unter www.swissfilms.ch Stand: 20.12.2023)](da6aaebf-4e3f-4d9f-ac2c-c974f5ece54c.jpeg)
 
 <!--StartFragment-->
 
