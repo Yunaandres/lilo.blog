@@ -13,7 +13,7 @@ In einer Zeit des digitalen Wandels und der kulturellen Transformation ist das L
 
 <!--StartFragment-->
 
-`Yuna Andres und Sofiia Bublyk`
+Yuna Andres und Sofiia Bublyk
 
 <!--EndFragment-->
 
@@ -23,37 +23,25 @@ In einer Zeit des digitalen Wandels und der kulturellen Transformation ist das L
 
 Inmitten des vierten Stocks erstreckt sich eine bunte Vielfalt an Dekorationen, darunter Kameras, Plakate, Lichterketten, Maschinen und Jukeboxen unterschiedlicher Art und Größe. Ganz oben neben einer kleinen Bar nimmt Raff Fluri Platz, um seine persönliche Verbindung zum Lichtspiel zu teilen. Der 44 Jahre alte technische Leiter für Veranstaltungen und Ausstellungen ist seit 2020 fest angestellt, vertraut mit dem Lichtspiel ist er jedoch schon seit Anfang an. Nebenbei ist er Recorder, Produzent, Drehbuchautor, Cutter, Regisseur, Kameramann, Tonmischer, Sounddesigner und Komponist.
 
-
-
 **Könnten Sie uns einen Einblick in Ihre Aufgaben und Verantwortlichkeiten geben?**
 
 Ich bin hauptsächlich  für die Projektionstechnik  der Events und die technische Realisierung im Kino verantwortlich. Zusätzlich kümmere ich mich um Social Media und arbeite an Projekten, bei denen Filme oder Geräte restauriert werden, und dazu Texte oder Publikationen verfasst werden. Meine Tätigkeiten sind sehr vielfältig und reichen über verschiedene Abteilungen.
-
-
 
 **Ist eine spezielle Ausbildung erforderlich, um in diesem Bereich zu arbeiten?**
 
 Es gibt verschiedene Ausbildungen, da meine Arbeit interdisziplinär ist. Technische Berufe und Filmgeschichte sind gängige Hintergründe. In unserem Team finden sich auch unterschiedliche Fachrichtungen. Ich persönlich habe Betriebswirtschaft studiert, später Filmrestaurierung und Kameraerfahrung dazu gelernt.
 
-
-
 **Was ist für Sie bei der Arbeit wichtig? Die Zusammenarbeit im Team?**
 
 Absolut. Der Teamaspekt ist entscheidend, da die finanziellen Ressourcen begrenzt sind, besonders in der Kulturbranche. *"Von mir aus gesehen ist man wirklich wegen dem Team auch da, weil viel Geld verdient man nicht, oder es ist nicht sehr viel Geld vorhanden für eine Institution wie unsere."* Doch die Motivation entsteht aus Freude an der Arbeit und der Überzeugung, dass es wichtig ist, das audiovisuelle Erbe der Schweiz zu bewahren und zugänglich zu machen.
-
-
 
 **Können Sie uns etwas über die Highlights der Sammlung des Lichtspiels und ihre Bedeutung in der Filmgeschichte erzählen?**
 
 Die Sammlung ist umfangreich, und wir arbeiten ständig daran, sie zu pflegen. Aktuell überlegen wir, uns auf Schweizer Filme zu konzentrieren, insbesondere auf den Bereich Amateurfilm. Die genaue Definition unseres Sammlungsschwerpunkts ist eine laufende Herausforderung.
 
-
-
 **Wie organisieren Sie die vielfältigen Aufgaben im Lichtspiel?**
 
 Die Koordination ist eine immense Aufgabe, besonders weil wir viele Festangestellte mit unterschiedlichen Teilzeitanstellungen haben. Die Herausforderung besteht darin, die Zusammenarbeit und den Austausch zu optimieren, da wir oft nicht alle gleichzeitig anwesend sind. *"Es ist wirklich für jede Institution eine Herausforderung, so viele Aufgaben unter einem Dach aufzuteilen und zu koordinieren. Das ist immer ein Problem, das ständig da ist, dass man viel zu viele Sachen, viel zu viel Arbeit und viel zu wenig Ressourcen hat."*
-
-
 
 **Wie entstand das Lichtspiel, und gab es einen speziellen Grund für seine Gründung?**
 
@@ -71,19 +59,13 @@ Wir haben einen haupt zuständigen Leiter und einige ausgebildete Mitarbeiter f�
 
 Es gibt eine Vielfalt im Programm, einschliesslich älterer und neuerer Filme. Es werden auch Premieren von neuen Filmen gezeigt, insbesondere von Berner Filmemachern. Die Auswahl hängt von verschiedenen Faktoren ab, darunter auch Themenreihen und Filmgeschichtsprojekte.
 
-
-
 **Gibt es Filme, die Ihnen besonders am Herzen liegen?**
 
 Mit meiner intensiven Beschäftigung mit Filmen wechselt meine Vorliebe häufig. Es gibt viele faszinierende neue und alte Filme, aber es ist schwer, einen Favoriten zu benennen. Die Vielfalt und Entwicklung des Mediums machen es schwierig, sich auf eine Top-Ten-Liste festzulegen.
 
-
-
 **Wie sehen Sie die Tendenz, dass trotz der Digitalisierung immer noch ältere Filme bevorzugt werden?**
 
 Es könnte mit der Flut von Remakes aus Hollywood zu tun haben. Man sieht immer mehr Neuverfilmungen von bereits existierenden Stoffen, anstatt auf Originalstoffe zurückzugreifen. Die Entscheidung für ältere Filme könnte auch daran liegen, dass sie zeitlos sind und in ihrer Zeit geschaffen wurden. Es ist eine individuelle Präferenz, die stark vom Film selbst abhängt.
-
-
 
 **Passt das Zitat  *„Wir bringen Vergangenheit und Gegenwart zusammen, indem wir alte Filme in diesem einzigartigen Lichtspielhaus zeigen, und es ist eine Möglichkeit, Filmgeschichten aufleben zu lassen und die alten Schätze einem neuen Publikum zugänglich zu machen.“* zu Ihrer Institution?**
 
