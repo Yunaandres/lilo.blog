@@ -8,7 +8,7 @@ image = "c36d8e71-5c63-4aa9-a16b-bbabef786acd.jpeg"
 description = ""
 footnotes = ""
 +++
-{{<lead>}}
+Ö{{<lead>}}
 
 Während sich die Welt um uns verändert und die Technologie voranschreitet, bleibt die Geschichte der     Filme lebendig – das Lichtspiel-Team in Bern trägt dazu bei, diese Geschichte in ihrer ganzen Faszination am Leben zu erhalten. Jeden Tag zaubert das kleine Team in Bern wahre Magie, um anderen zu helfen, sich daran zu erinnern, wie die Filmindustrie in der Vergangenheit wirklich war. 
 
