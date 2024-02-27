@@ -87,7 +87,9 @@ Es könnte mit der Flut von Remakes aus Hollywood zu tun haben. Man sieht immer 
 
 **Passt das Zitat  *„Wir bringen Vergangenheit und Gegenwart zusammen, indem wir alte Filme in diesem einzigartigen Lichtspielhaus zeigen, und es ist eine Möglichkeit, Filmgeschichten aufleben zu lassen und die alten Schätze einem neuen Publikum zugänglich zu machen.“* zu Ihrer Institution?**
 
-Ja, absolut. Wir nutzen digitale Medien, um Geschichten zu präsentieren und das Publikum einzubeziehen. Die Verbindung von alten Schätzen mit einem neuen Publikum ist ein zentraler Aspekt unserer Arbeit.Bei einer Führung wurde von einem Teammitglied folgendes betont: *"Da wir auch ein kleines Team sind und jeder jedem hilft, ist das hier fast schon wie eine kleine Familie."*
+Ja, absolut. Wir nutzen digitale Medien, um Geschichten zu präsentieren und das Publikum einzubeziehen. Die Verbindung von alten Schätzen mit einem neuen Publikum ist ein zentraler Aspekt unserer Arbeit.Bei einer Führung wurde von einem Teammitglied folgendes betont:
+
+> *"Da wir auch ein kleines Team sind und jeder jedem hilft, ist das hier fast schon wie eine kleine Familie."*
 
 {{<box>}}
 
