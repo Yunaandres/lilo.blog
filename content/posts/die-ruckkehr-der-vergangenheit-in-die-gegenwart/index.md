@@ -48,7 +48,7 @@ Es war im Frühling des Jahres 2000, anfänglich waren es nur zwei Menschen, Dav
 
 <!--EndFragment-->
 
-![Backsteingebäude der Kinemathek Lichtspiel - (Fotografie von Yuna Andres und Sofiia Bublyk)](https://www.flickr.com/photos/lichtspielbern/14413289293/in/album-72157645113847205)
+![Backsteingebäude der Kinemathek Lichtspiel - (Fotografie von Yuna Andres und Sofiia Bublyk)](mum4knxk.png)
 
 <!--StartFragment-->
 
